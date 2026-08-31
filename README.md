@@ -5,7 +5,7 @@
 
 **The model recommends. Deterministic code decides. A human signs off.**
 
-[Portfolio](https://jpatel.io) · [LinkedIn](https://linkedin.com/in/jpatel-strategy) · jaypatelaitools@gmail.com
+[Portfolio](https://jpatel.io) · [LinkedIn](https://linkedin.com/in/jpatel-strategy) · jay401331@gmail.com
 
 </div>
 
